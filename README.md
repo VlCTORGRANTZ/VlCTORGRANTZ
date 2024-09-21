@@ -4,4 +4,4 @@
 
 <p align="center"
 
-rina! :3 she/him
+my heart takes up all my strength
